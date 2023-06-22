@@ -40,7 +40,7 @@ Thank you !!!
 
 # Questions and Feedback
 
-If you have any questions or you face any trouble while executing the project. Please feel free to contact me here at fahadalamgir@outlook.com.
+If you have any questions or you face any trouble while executing the project. Please feel free to contact me here.
 I will be happy to answer your queries.
 
 Have Fun !!!! 
